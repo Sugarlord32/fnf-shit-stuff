@@ -1,4 +1,4 @@
 # fnf-shit-stuff
 this is the stuff i use it's really cool
 
-go watch a tutorial or something to see how to use them and all
+for stuff like fsts with two parts put part one in the channel rack and part two in whatever mixer channel you wanna use
